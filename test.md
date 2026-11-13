@@ -1,0 +1,1 @@
+Bu yerda amaliyot bo'ldi github mavzusi bo'yicha
