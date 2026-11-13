@@ -1,0 +1,1 @@
+Bu yerda dars ma'lumoti yozildi
